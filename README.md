@@ -1,1 +1,1 @@
-#Cat de puternic ii
+# Cat de puternic ii
